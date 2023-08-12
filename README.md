@@ -1,1 +1,2 @@
-- 👋
+- 💬 **discord id:** *eeleemos*
+- (wip...)

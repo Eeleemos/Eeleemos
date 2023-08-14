@@ -1,3 +1,7 @@
 - 💬 **discord id:** *eeleemos*
-- 🖥 **currently working on a game**
+- 🕹 **currently working on a game**
+- 🎨 **illustrator**
+- 🐧 **linux fanboy** *(windows sucks)*
+- 💤 **full time lazy**
+- 💎 **currently matrixed by Houseki no Kuni**
 - *(wip...)*

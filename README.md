@@ -1,5 +1,5 @@
 - 💬 **discord id:** *eeleemos*
-- 🕹 **(essaye de) travailler platformer**
+- 🕹 **(essaye de) travailler sur un platformer**
 - 🤓 **code avec le c*l tellement je sais pas coder**
 - 🎨 **peintre et dessinateur à mes heures perdues**
 - 🐧 **linux user** *(windows ça pue la m***rde)*

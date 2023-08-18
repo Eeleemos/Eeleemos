@@ -1,7 +1,8 @@
 - 💬 **discord id:** *eeleemos*
-- 🕹 **currently working on a game**
-- 🎨 **illustrator**
-- 🐧 **linux fanboy** *(windows sucks)*
-- 💤 **full time lazy**
-- 💎 **currently matrixed by Houseki no Kuni**
-- *(wip...)*
+- 🕹 **(essaye de) travailler platformer**
+- 🤓 **code avec le c*l tellement je sais pas coder**
+- 🎨 **peintre et dessinateur à mes heures perdues**
+- 🐧 **linux user** *(windows ça pue la m***rde)*
+- 💤 **flemmard à temps plein**
+- 💎 **actuellement matrixé par Houseki no Kuni / L'Ère des Cristaux**
+- 📚 *(wip...)*

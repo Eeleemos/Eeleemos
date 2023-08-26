@@ -1,8 +1,7 @@
 - 💬 **discord id:** *eeleemos*
-- 🕹 **(essaye de) travailler sur un platformer**
+- 🕹 **en train** *(d'éssayer)* **de travailler sur un platformer**
 - 🤓 **code avec le c*l tellement je sais pas coder**
-- 🎨 **peintre et dessinateur à mes heures perdues**
+- 🎨 **dessinateur et peintre**
 - 🐧 **linux user** *(windows ça pue la m***rde)*
-- 💤 **flemmard à temps plein**
 - 💎 **actuellement matrixé par Houseki no Kuni / L'Ère des Cristaux**
 - 📚 *(wip...)*

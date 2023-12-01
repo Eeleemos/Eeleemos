@@ -1,4 +1,6 @@
 - 💬 **discord id:** *eeleemos*
+__________________________________
+
 - 🕹 **gamedev** *(je pue la merde)*
 - 🤓 **code avec le c*l tellement je sais pas coder**
 - 🎨 **dessinateur et peintre**

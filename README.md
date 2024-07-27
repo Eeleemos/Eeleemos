@@ -2,4 +2,5 @@
 __________________________________
 
 making crapy games ._. *(that you can play [here](crabmaniac.carrd.co))*.
-Also, watch Houseki no Kuni (and read the manga) ; it's good.
+
+*Also, please watch Houseki no Kuni (and read the manga) ; it's good.*

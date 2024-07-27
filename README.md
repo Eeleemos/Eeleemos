@@ -1,5 +1,5 @@
 - 💬 **discord id:** *eeleemos*
 __________________________________
 
-j'ai fais quelques jeux (vous pouvez les trouver [ici](crabmaniac.carrd.co)).
-sinon regardez Houseki no Kuni (L'Ère des Cristaux) (et lisez le manga) ; c'est bien
+making crampy games ._. (that you can play [here](crabmaniac.carrd.co)).
+Also, watch Houseki no Kuni (and read the manga) ; it's good.
